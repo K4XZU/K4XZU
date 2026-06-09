@@ -1,16 +1,39 @@
-## Hi there 👋
+<div align="center">
+<img width="679" height="376" alt="image" src="https://github.com/user-attachments/assets/c69207fc-aab6-47d7-9eb7-e0ff2f3e007b" />
 
-<!--
-**K4XZU/K4XZU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+    
+![](https://komarev.com/ghpvc/?username=h3venly4&label=˚ʚ♡ɞ˚&color=000000&style=plastic)
 
-Here are some ideas to get you started:
+[WAIFUU♡](https://github.com/Kinichs)  ✦   [TOFU's ‎ATA♡](https://2uguruget.atabook.org/)
+<p float="left">
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒ 
+ <div align="left"> 
+    
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  ‎ [ATA♡](https://xxzu.atabook.org)
+                ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎          [SP ♡](https://xzuz.straw.page) ‎ ‎ ‎ ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ..
+
+　　　　.　　. 　 ˚　.　　　　　 . . ݁₊ ⊹ . ݁˖ .　　　 　˚　　　　 . ⋆. ࿐࿔ 　　　　.　　. 　 ˚　.　　　　　 　 　˚　　　　 . ★⋆. ࿐࿔ 
+
+<div align="center">
+
+‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎   ‎  
+
+# ୭ ˚. ˎˊ˗ 
+  
+
+My pt qts: Tofu, Navi/vu, Hermes, Zen, Amber, Len, Koy, Vel, Lori,  willow, finit, zav, zy, LEE,  lillith, (+green name/oomfs)!!
+
+
+My roblox gangie: Yoru(child+bsf<3), Atzu, Ari, Elias, Kei, Leo, Ray, Alex, Ryver(<3), Onyx, Moko, magnolia Haru and moots!!
+
+<img width="290" height="173" alt="albedo" src="https://github.com/user-attachments/assets/965ba2db-f141-468f-943e-19d7538ad71a" />
+<img width="290" height="176"  src="https://github.com/user-attachments/assets/f57214ff-71c8-4eff-91d8-37c2531103a1" width="70"/>
+
+
+
+
+
+<div align="center">
+  ⋆˚꩜｡˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ ⋆˚꩜｡˚　　　　✦　　　.　　. 　 ˚　.　　　　　 . ✦　　　 　˚　　　　 . ★⋆. ࿐࿔ 
+
