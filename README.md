@@ -1,5 +1,6 @@
 <div align="center">
-<img width="679" height="376" alt="image" src="https://github.com/user-attachments/assets/c69207fc-aab6-47d7-9eb7-e0ff2f3e007b" />
+<img width="484" height="397" alt="image" src="https://github.com/user-attachments/assets/ae81f0c5-0223-4b77-ba01-6489386872e7" />
+
 
     
 ![](https://komarev.com/ghpvc/?username=h3venly4&label=˚ʚ♡ɞ˚&color=000000&style=plastic)
