@@ -9,7 +9,7 @@
   ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒ 
  <div align="left"> 
     
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[WAIFUU♡](https://github.com/Kinichs)  ✦   [TOFU's ‎ATA♡](https://2uguruget.atabook.org/) ‎ ‎ ‎ ‎   [ATA♡](https://xxzu.atabook.org)  ✦  [SP ♡](https://xzuz.straw.page) ‎ ‎ ‎ ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ..
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ⠀‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎[🇼​​🇦​​🇮​​🇫​​🇺♡](https://github.com/Kinichs)  ✦   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎ ‎ ‎   [ᴀᴛᴀʙᴏᴏᴋ♡](https://xxzu.atabook.org)  ✦  [ꜱᴛʀᴀᴡᴘᴀɢᴇ ♡](https://xzuz.straw.page) ‎ ‎ ‎ ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ ᵐᵉ ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ..
 
 　　　　.　　. 　 ˚　.　　　　　 . . ݁₊ ⊹ . ݁˖ .　　　 　˚　　　　 . ⋆. ࿐࿔ 　　　　.　　. 　 ˚　.　　　　　 　 　˚　　　　 . ★⋆. ࿐࿔ 
 
