@@ -10,7 +10,7 @@
 
  <div align="left"> 
     
-‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎[🇼​​🇦​​🇮​​🇫​​🇺♡](https://github.com/Kinichs)  ✦   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎ ‎ ⋆⋆⋆‎   [ᴀᴛᴀ](https://xxzu.atabook.org)ʙᴏᴏᴋ♡  ✦  [ꜱᴛʀᴀᴡ](https://xzuz.straw.page)ᴘᴀɢᴇ ♡ ✦ [​🇷​​🇪​​🇳​​](https://rentry.org/xxzu‎)🇹​​🇷​​🇾♡​ ‎ ‎  ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ [ᵐᵉ](rentry.co/xxzu) ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ..
+‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎[🇼​​🇦​​🇮​​🇫​​🇺♡](https://github.com/Kinichs)  ✦   [​🇼​​🇮​​🇫​​🇪​❜​🇸​ ​🇦​​🇹​​🇦​♡](https://2uguruget.atabook.org/) ‎ ‎ ‎ ⋆⋆⋆‎   [ᴀᴛᴀ](https://xxzu.atabook.org)ʙᴏᴏᴋ♡  ✦  [ꜱᴛʀᴀᴡ](https://xzuz.straw.page)ᴘᴀɢᴇ ♡ ✦ [​🇷​​🇪​​🇳​​](https://rentry.co/xxzu‎) 🇹​​🇷​​🇾♡​ ‎ ‎  ʰᵒˡᵈ ᵖⁱᵉᶜᵉˢ ᵒᶠ [ᵐᵉ](rentry.co/xxzu) ᵗⁱˡˡ ᵗʰᵉʸ ᵇᵉᶜᵒᵐᵉ ᵗᵒᵒ ʰᵉᵃᵛʸ..
 
 <div align="center">
   ‎ ‎ 
