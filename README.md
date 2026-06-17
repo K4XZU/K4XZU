@@ -1,8 +1,7 @@
+
 <div align="center">
    ⋆˚｡˚　　　　. ݁₊ ⊹ . ݁˖ . ݁　　　.　　. 　 ˚　.　　　　　 . 　　 　˚　　. ݁₊ ⊹ . ݁˖ . ݁　　 . ⋆. ࿐࿔﹒﹒﹒    
-<img width="560" height="380" alt="image" src="https://github.com/user-attachments/assets/95380721-f601-4753-85c3-751680f80b3d" />
-
-
+<img width="435" height="300" alt="Screenshot 2026-06-17 184326" src="https://github.com/user-attachments/assets/78ce4778-2540-4846-9e7c-51a45a470686" />
 
 
     
