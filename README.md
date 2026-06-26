@@ -34,5 +34,5 @@ $\color{#7b8f94}{\text{     ᴷᵉⁱ ‎ ‎ ‎ ‎ ‎ ‎    ᴸᵉᵒ ‎ �
 
      SCREENSHOT OF SHAME.
 
+<img width="485" height="93" alt="Screenshot 2026-06-26 121233" src="https://github.com/user-attachments/assets/f19d3b57-49ba-44f1-ac15-ad0c44aa7310" />
 
-<img width="248" height="182" alt="Screenshot 2026-06-23 203447" src="https://github.com/user-attachments/assets/5f2c4fbd-1c3b-40d5-ae57-87a04ea6f59b" />
