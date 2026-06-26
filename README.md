@@ -31,3 +31,8 @@ $\color{#7b8f94}{\text{     ᴷᵉⁱ ‎ ‎ ‎ ‎ ‎ ‎    ᴸᵉᵒ ‎ �
 
 <img width="100" height="83" alt="image" src="https://github.com/user-attachments/assets/b4e25ad2-4818-4928-8c32-2feca2cf0ab1" />
 <img width="110" height="80" alt="image" src="https://github.com/user-attachments/assets/e59b3148-428a-4405-ab15-e440be0dc47f" /><img width="85" height="80" alt="image" src="https://github.com/user-attachments/assets/e8870de7-8642-4165-b08c-d2d09cbd24b7" /><img width="106" height="80" alt="image" src="https://github.com/user-attachments/assets/066326c0-7f95-4027-972d-f5953fa5b0d0" /><img width="105" height="82" alt="image" src="https://github.com/user-attachments/assets/4aaad354-e3c8-43e1-a8aa-b196316027c0" /><img width="110" height="80"  src="https://github.com/user-attachments/assets/f57214ff-71c8-4eff-91d8-37c2531103a1" width="70"/><img width="97" height="80" alt="image" src="https://github.com/user-attachments/assets/e01fe500-bcc8-447b-a66d-22cb4761f045" />
+
+     SCREENSHOT OF SHAME.
+
+
+<img width="248" height="182" alt="Screenshot 2026-06-23 203447" src="https://github.com/user-attachments/assets/5f2c4fbd-1c3b-40d5-ae57-87a04ea6f59b" />
