@@ -27,7 +27,7 @@ $\color{#7b8f94}{\text{     ᴷᵉⁱ ‎ ‎ ‎ ‎ ‎ ‎    ᴸᵉᵒ ‎ �
 ‎‎ ‎
   ‎ ‎ ‎
 
-<img width="110" height="80" alt="image" src="https://github.com/user-attachments/assets/e59b3148-428a-4405-ab15-e440be0dc47f" /><img width="85" height="80" alt="image" src="https://github.com/user-attachments/assets/e8870de7-8642-4165-b08c-d2d09cbd24b7" /><img width="75" height="80" alt="image" src="https://github.com/user-attachments/assets/0eb82f29-7f71-4265-b9cf-b4a2f841d3d1" />
+<img width="110" height="80" alt="image" src="https://github.com/user-attachments/assets/e59b3148-428a-4405-ab15-e440be0dc47f" /><img width="65" height="80" alt="image" src="https://github.com/user-attachments/assets/0eb82f29-7f71-4265-b9cf-b4a2f841d3d1" />
 <img width="105" height="82" alt="image" src="https://github.com/user-attachments/assets/4aaad354-e3c8-43e1-a8aa-b196316027c0" /><img width="110" height="80"  src="https://github.com/user-attachments/assets/f57214ff-71c8-4eff-91d8-37c2531103a1" width="70"/><img width="97" height="80" alt="image" src="https://github.com/user-attachments/assets/e01fe500-bcc8-447b-a66d-22cb4761f045" />
 
      SCREENSHOT OF SHAME.
